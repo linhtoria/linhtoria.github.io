@@ -1,1 +1,1 @@
-# Personal Website for Victoria Nguyen (Linh When).
+# Personal Website for Victoria Nguyen.
